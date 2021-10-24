@@ -1,2 +1,2 @@
 # nico
-Va salut ,drfagilor si va urez note interesante la examene . ^^
+Va salut ,dragilor si va urez note interesante la examene . ^^
